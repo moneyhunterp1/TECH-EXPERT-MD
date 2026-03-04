@@ -45,6 +45,6 @@
 
 ## 📚 **TUTORIAL: HOW TO DEPLOY**
 
-[**Click here for the tutorial**](https://TikTok.com/ferdiezra)
+[**Click here for the tutorial**](https://vm.tiktok.com/ZS9dFYoF4Tda9-9p61J/)
 
 ----------------------
